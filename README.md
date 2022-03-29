@@ -40,3 +40,6 @@ UPDATING
 
 ## Яндекс АД
 UPDATING
+
+## ТиПИ
+UPDATING
