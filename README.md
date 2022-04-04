@@ -1,14 +1,31 @@
 # DEPARTMENT
 
-## 1C
-чат ТГ: https://t.me/kis1c2022
-
-31го контест, 4го апреля - списки на собес, 11-23 апреля - собес, 23 апреля - финал.
-
 ## Сбер
 страница кафедры: https://mipt.ru/education/chairs/sbertech/postupayushchim-v-magistraturu.php
 
 Написать мотив. письмо на OVMaksimova.SBT@sberbank.ru, заполнить https://mipt.ru/education/chairs/sbertech/Анкета_для_поступления_в_магистратуру.docx и послать туда же.
+
+## Кафедра Тинька
+
+https://fintech.tinkoff.ru/study/academy/mipt_bachelor/?utm_source=vkontakte_fintech&utm_medium=smm.unp&utm_campaign=academy.mipt_bachelor&dsp_click_id=a63b3ab3-5bfd-4664-8431-b2bfbfea1e6a
+
+24го апреля прога, 8го мая - матеша. Презы не было.
+
+## ИПМ РАН
+Ну а хуле делать?
+
+Институт прикладной математики им. М.В. Келдыша РАН сайт: https://keldysh.ru/
+
+5 апреля в 18:30 конфа
+
+## ИВМ РАН
+Ну а хуле делать?
+
+Сайт кафедры -- https://www.inm.ras.ru/kaf-vtmgb/
+
+Кафедра Вычислительных технологий и моделирования в геофизике и биоматематике.
+
+До 7го апреля заполнить https://forms.gle/6twX7uvs2DGrS7DA9
 
 ## ИСП РАН
 Ну а хуле делать?
