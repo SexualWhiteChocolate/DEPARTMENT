@@ -35,7 +35,9 @@ https://fintech.tinkoff.ru/study/academy/mipt_bachelor/?utm_source=vkontakte_fin
 
 ## ABBY
 https://t.me/brainstxt
+
 13 - 14 транса
+
 14го с 17:00 контест
 
 
