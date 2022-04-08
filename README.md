@@ -11,29 +11,6 @@ https://fintech.tinkoff.ru/study/academy/mipt_bachelor/?utm_source=vkontakte_fin
 
 24го апреля прога, 8го мая - матеша. Презы не было.
 
-## ИПМ РАН
-Ну а хуле делать?
-
-Институт прикладной математики им. М.В. Келдыша РАН сайт: https://keldysh.ru/
-
-5 апреля в 18:30 конфа
-
-## ИВМ РАН
-Ну а хуле делать?
-
-Сайт кафедры -- https://www.inm.ras.ru/kaf-vtmgb/
-
-Кафедра Вычислительных технологий и моделирования в геофизике и биоматематике.
-
-До 7го апреля заполнить https://forms.gle/6twX7uvs2DGrS7DA9
-
-## ИСП РАН
-Ну а хуле делать?
-
-страница кафедры: https://education.at.ispras.ru/be-a-part
-
-Написать "в марте - апреле" koort@ispras.ru, походу без отбора блять совсем, в мае указать их тупа, и всё.
-
 ## ИППИ
 задачи для собеса: http://iitp.ru/ru/about/interview_tasks
 
@@ -44,6 +21,10 @@ https://fintech.tinkoff.ru/study/academy/mipt_bachelor/?utm_source=vkontakte_fin
 По вопросам рекомендуют писать на students@iitp.ru 
 
 Собес в конце апреля, на собесе надо иметь решённым подготовленное для собеса задание.
+
+## ДМ
+
+Написать Райгору, вроде берут всех...
 
 ## ИАД + ПиОС
 анкета: https://docs.google.com/forms/d/e/1FAIpQLSfUdpdeaYvSSSKViUPoAp2J3nXXNkC-JDFWeyM7TeS8z3nrqA/viewform
