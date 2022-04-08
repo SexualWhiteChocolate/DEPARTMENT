@@ -34,7 +34,10 @@ https://fintech.tinkoff.ru/study/academy/mipt_bachelor/?utm_source=vkontakte_fin
 Суперфастом (за три минуты они пишут, охуеть!) надо че то рассказать по выложенной задаче (см. сайт), соберут всех скопом в большой зум-конференции, хуй знает когда.
 
 ## ABBY
-UPDATING
+https://t.me/brainstxt
+13 - 14 транса
+14го с 17:00 контест
+
 
 ## Яндекс АД
 UPDATING
