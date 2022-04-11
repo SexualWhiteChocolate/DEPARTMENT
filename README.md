@@ -5,6 +5,10 @@
 
 Написать мотив. письмо на OVMaksimova.SBT@sberbank.ru, заполнить https://mipt.ru/education/chairs/sbertech/Анкета_для_поступления_в_магистратуру.docx и послать туда же.
 
+## Кафедра анализа систем и решений Молча
+
+Написать на почту Молча molch64@yandex.ru, пройти собес в конце апреля.
+
 ## Кафедра Тинька
 
 https://fintech.tinkoff.ru/study/academy/mipt_bachelor/?utm_source=vkontakte_fintech&utm_medium=smm.unp&utm_campaign=academy.mipt_bachelor&dsp_click_id=a63b3ab3-5bfd-4664-8431-b2bfbfea1e6a
