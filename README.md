@@ -1,3 +1,6 @@
+# Compilation
+https://vk.com/@miptfpmi-kafedry-fpmi
+
 # DEPARTMENT
 
 ## Сбер
